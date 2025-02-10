@@ -6,7 +6,7 @@ Sprunki Phase 4 APK es un **juego de ritmo y terror** que combina desafíos musi
 
 ## 🎉🎉🎉 [Descarga Ahora](https://modhello.io/)
 
-![com AutumnRiverStd TheSquidward--128-icon](https://github.com/user-attachments/assets/8ead289a-70bf-4b95-9db8-cef081b9268a)
+![maxresdefault](https://github.com/user-attachments/assets/d5b1ff3e-acd1-4805-8b9a-c72442250083)
 
 ## **Características clave de Sprunki Phase 4 APK**  
 - **Gran biblioteca de sonidos** – Combina efectos, melodías y voces para crear música única.  
@@ -37,7 +37,7 @@ Sprunki Phase 4 combina creación musical con desafíos de ritmo. Los jugadores 
 - **Nuevos personajes y escenarios** – Mejoras gráficas y animaciones.  
 - **Mayor dificultad** – Ritmos más rápidos y desafiantes.  
 
-![maxresdefault](https://github.com/user-attachments/assets/d5b1ff3e-acd1-4805-8b9a-c72442250083)
+![com AutumnRiverStd TheSquidward--128-icon](https://github.com/user-attachments/assets/8ead289a-70bf-4b95-9db8-cef081b9268a)
 
 ## **Novedades en Sprunki Phase 4 APK**  
 - **Nuevos packs de sonido** para mayor variedad musical.  
